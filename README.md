@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @GavinLatter
+- I am going to school at Brock university
+- This page is currently empty, but I plan on uploading soon!
